@@ -1,4 +1,4 @@
 Welcome to Foolish ltd!
 
+![Image](https://github.com/user-attachments/assets/0900d87d-166d-4dbb-a668-2e705b2b142c)
 
-(https://github.com/user-attachments/assets/2c9aa776-8ce1-4a6a-8d18-3c42174a3ea0)
