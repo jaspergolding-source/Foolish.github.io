@@ -1,1 +1,1 @@
-Welcome to Foolish ltd
+Welcome to Foolish ltd!
